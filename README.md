@@ -1,1 +1,2 @@
 # Chips-Red-Velvet-Cake
+Desserts! Enough to delight your buddies on their special days. The sweetness of scrumptious cakes can stir love in your friendship and make you enjoy a special day with your dear friends to the fullest. Undoubtedly, you have lots of sweet and sour memories with your friends, but the happiness of being surprised by your friends on special occasions is your favourite one, right? Now, things have changed, you all are too busy in your own life. But, do you know even nowadays you can surprise your friend on special days? 
